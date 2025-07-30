@@ -1,3 +1,0 @@
-The Flash es una serie de televisión estadounidense que está siendo desarrollada por Greg Berlanti, Andrew Kreisberg  y Geoff Johns  para la cadena The CW es también un spin-off de Arrow. La serie se estrenó el 7 de octubre del 2014 en Estados Unidos y el 16 de octubre del 2014 en Hispano América.
-
-La serie trata sobre el mítico velocista escarlata de la editorial DC, que lucha contra una colorida galería de criminales y supervillanos, conocidos como "The Rogues", mientras trabaja como Criminalista para el Departamento de Policía de Central City. La encarnación adaptada de Flash es la de Barry Allen, quien es un ayudante de la división criminal y forense del departamento de policía de Central City.
