@@ -1,0 +1,8 @@
+tras las numerosas quejas recibidas por la elección de Michael Keaton para la película Batman (1989) se estrenó un trailer de 90 segundos para combatir la ola negativa, y fue tal el éxito que tuvo este avance que los fans incluso compraban entradas de cine sólo para verlo y después salir?
+en un partido de la liga de fútbol alemana en 2015 el jugador Pierre-Emerick Aubameyang celebró su gol poniéndose una máscara de Batman y su compañero Marco Reus lo acompañó poniéndose un antifaz y simulando ser Robin, recibiendo como amonestación una tarjeta amarilla?
+un ejemplar del primer cómic de Batman, Detective Comics #27, se vendió en 2010 por 1,075 millones de dólares, siendo hasta dicha fecha la segunda mayor cifra pagada por un cómic?
+en el videojuego Batman: Arkham Asylum, al entrar en la sala de visitas habrá un maniquí del Joker con una televisión que hablará de distintas sagas de cómic o personajes importantes, como pueden ser La Caída del Murciélago (tras derrotar a Bane) o la muerte de Jason Todd en Una muerte en la Familia (tras derrotar a Harley Quinn)?
+el nombre Jack Napier del Joker en Batman (1989) es un homenaje a Alan Napier, que interpretó a Alfred Pennyworth en la serie de los sesenta?
+el actor de voz Troy Baker fue elegido para interpretar al Joker debido a que su voz era parecida a la de Mark Hamill?
+Batman está levemente basado en el personaje de Sir Arthur Conan Doyle, Sherlock Holmes, así también en otros como El Zorro, Doc Savage y The Shadow?
+aunque fue muy conocido en el mundo del cómic, Batman no adquirió la popularidad internacional que ahora tiene hasta la película de 1989?
